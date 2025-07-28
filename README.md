@@ -9,5 +9,6 @@ Feel free to reach out to connect over anything!
 Email: zoe.dawkins1@gmail.com
 LinkedIn: https://www.linkedin.com/in/zoe-dawkins/
 
-Cheers🎉🎉
+Cheers🎉
+
 -Zoe
